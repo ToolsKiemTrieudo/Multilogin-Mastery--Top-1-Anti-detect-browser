@@ -27,6 +27,6 @@ Dưới đây là 20 bài viết sắc bén, giúp anh em hiểu tại sao Multi
 GoLogin, Kameleo, AdsPower hay Incogniton chỉ là mấy thằng bắt chước, không bao giờ qua mặt được Multilogin. Anh em muốn làm trùm hay chỉ lẹt đẹt? Quất Multilogin ngay hôm nay qua [hướng dẫn dùng Multilogin miễn phí](https://adblogin.com/huong-dan-su-dung-multi-mien-phi/) để lấy mã giảm giá, có khi được 50-80%. Mã **ADBNEW50** đang giảm 50%, xài là mê liền.
 
 ## Liên hệ
-Có gì thắc mắc thì comment thẳng dưới bài, hoặc gửi mail qua [email@example.com](mailto:email@example.com). Nhưng nói thật, xài Multilogin đi rồi anh em sẽ chẳng cần hỏi gì nữa đâu.
+Có gì thắc mắc thì comment thẳng dưới bài, hoặc https://t.me/ToolsKiemTrieuDo. Nhưng nói thật, xài Multilogin đi rồi anh em sẽ chẳng cần hỏi gì nữa đâu.
 
 **Multilogin – Không chỉ là công cụ, mà là cách để làm trùm!**
